@@ -12,7 +12,7 @@ Hello. {¬ºཀ°}¬ This is my "about me," for anyone that might want to befrie
 
 •⠀I'm an adult, minors *please* interact with caution. I have no problem befriending you, as long as you're appropriate. (߹ _ ߹)"
 
-•⠀I'm usually sitting at docks (and rarely, fandom areas) with my friends. Try not to cover us if you want to avoid being hidden! (15m~24h)
+•⠀I'm usually sitting at docks with my friends. Try not to cover us if you want to avoid being hidden! (15m~24h)
 
 •⠀I'm often off-tab & I have public chat disabled, *please* whisper to interact at all times. Most of my skins are commissioned by my friends [Vin](https://github.com/minecraftmaxxing) & [Lyle](https://github.com/mankiraful), so any love sent in my whispers will be forwarded to them! Give them a follow if you like their work.
 </details>
