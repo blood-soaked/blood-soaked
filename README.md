@@ -16,5 +16,5 @@ Hello. {¬ºཀ°}¬ This is my "about me," for anyone that might want to befrie
 
 •⠀I'm often off-tab & I have public chat disabled, *please* whisper to interact at all times. Most of my skins are commissioned by my friends [Vin](https://github.com/minecraftmaxxing) & [Lyle](https://github.com/mankiraful), so any love sent in my whispers will be forwarded to them! Give them a follow if you like their work.
 
-Ok that's all. I think. I love my friends & I adore my girlfriend.
+Ok that's all. I think. I love my friends & I adore my girlfriend. (Most of them are in my following, go check them out!)
 </details>
