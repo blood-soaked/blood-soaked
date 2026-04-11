@@ -8,7 +8,7 @@
    
 Hello. {¬ºཀ°}¬ This is my "about me," for anyone that might want to befriend me! I encourage everyone to come say hi. (^ω^)
 
-•⠀I'm plural & lack a stable collective identity, so please give me a nickname to refer to me by! You can also just use my pronouns, he/him. For those who are already close to me, you know my "real" name & you are free to use it. ❤︎⁠
+•⠀I'm plural & lack a stable collective identity, so please give me a nickname to refer to me by! You can also just use my pronouns, he/him. For those who are already close to me, you know my "real" name & you are free to use it anytime. ❤︎⁠
 
 •⠀I'm an adult, minors *please* interact with caution. I have no problem befriending you, as long as you're appropriate. (߹ _ ߹)"
 
